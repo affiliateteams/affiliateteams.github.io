@@ -1,2 +1,2 @@
 # affiliateteams.github.io
-Affiliate Teams for ClickFunnels Super Affiliates
+Affiliate Teams for ClickFunnels™ Affiliate Bootcamp
